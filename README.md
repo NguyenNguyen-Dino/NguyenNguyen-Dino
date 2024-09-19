@@ -5,4 +5,4 @@
 - 💞️ I'm looking to collaborate on projects related to economic forecasting, market analysis, and data-driven business strategies. 
 - 📫 How to reach me: nguyennguyen.31221022251@st.ueh.edu.vn.
 - 😄 Pronouns: Nguyen Nguyen or Dino.
--⚡ Fun fact: I have a background in economics and enjoy analyzing economic trends.
+- -⚡ Fun fact: I have a background in economics and enjoy analyzing economic trends.
